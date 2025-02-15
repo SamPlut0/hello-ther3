@@ -1,6 +1,6 @@
 byi and personal infos. . . . . . . ╰──╮
 
-hello, first thing is what to call me, i don't mind any nicknames as long as it's not bad or offensive, but i preferf  Melon OR Watermelon my most used nickname. more so my birthday is on 12/21 - MM/DD , am an introvert person but i do have friends and i do make some if they interact first!, the way i speak english is not the best, still learning and it's my third language. please if you are willing to interact just know that i joke a lot and my jokes are sometimes offensive so please be Patient. and i'm mostly off tab soo whisper if you want to interact. 𝘐 𝘢𝘮 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘴𝘦𝘮𝘪 𝘷𝘦𝘳𝘣𝘢𝘭 
+hello, first thing is what to call me, i don't mind any nicknames as long as it's not bad or offensive, but i preferf  Melon OR Watermelon my most used nickname. more so my birthday is on 12/21 - MM/DD , am an introvert person but i do have friends and i do make some if they interact first!, the way i speak english is not the best, still learning and it's my third language. please if you are willing to interact just know that i joke a lot and my jokes are sometimes offensive so please be Patient. and i'm mostly off tab soo whisper if you want to interact. 𝘐 𝘢𝘮 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘴𝘦𝘮𝘪 𝘷𝘦𝘳𝘣𝘢𝘭 !
 
 ∘₊✧───────────────────────────────────────────✧₊∘
 
